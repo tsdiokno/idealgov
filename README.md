@@ -28,3 +28,13 @@ Duty Free offers premium consumer goods in different categories. If the Governme
 Government-owned companies can provide better salary rates if not more jobs to unemployed citizens. It can further its own inclination for welfare by setting smaller profit margins on goods to make it more available to more people.
 
 It can compete against products, services, and goods in the market owned by private entities which should in turn promote a more lively economy.
+
+## Bail Enforcement Enhancement
+
+Or bounty hunting. The national police if not currently compromised is under-numbered or under-equipped to track down an urgently increasing volume of criminals or violatiors.
+
+The Government will do well in discouraging citizens from patronizing criminals or being generally apathetic towards them when caught on sight. A compelling commission in exchange for turning over fugitives or criminals will give signed citizen bounty hunters to take part in law-enforcement and the financial incentive that goes along with it under an enhanced bounty hunting program.
+
+### Policing the Police
+
+This also allows the policing power to be decentralized given that there is no perfect agency. This proposal may empower the wider citizenry in actively holding powers to account alongside watchdogs such as the Commission on Human Rights.
